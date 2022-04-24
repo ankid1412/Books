@@ -45,4 +45,6 @@ https://flexibits.com/
 
 https://midterm.app/
 
+https://lyricstraining.com/
+
 Notability, GoodNotes
