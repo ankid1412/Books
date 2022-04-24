@@ -32,3 +32,5 @@ https://allthings.how/
 https://simplenote.com/
 
 https://notejoy.com/
+
+https://www.mactype.net/
