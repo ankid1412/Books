@@ -31,3 +31,4 @@ https://allthings.how/
 
 https://simplenote.com/
 
+https://notejoy.com/
