@@ -41,4 +41,6 @@ https://www.taskade.com/
 
 https://www.fontspace.com/
 
+https://flexibits.com/
+
 Notability, GoodNotes
