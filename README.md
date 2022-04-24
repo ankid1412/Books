@@ -36,3 +36,9 @@ https://notejoy.com/
 https://www.mactype.net/
 
 https://colorhunt.co/
+
+https://www.taskade.com/
+
+https://www.fontspace.com/
+
+Notability, GoodNotes
