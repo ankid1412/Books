@@ -24,3 +24,5 @@ https://www.gettyimages.com/
 https://pixabay.com/
 
 https://www.enature.qa/
+
+https://www.newworldencyclopedia.org/
