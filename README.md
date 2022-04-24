@@ -34,3 +34,5 @@ https://simplenote.com/
 https://notejoy.com/
 
 https://www.mactype.net/
+
+https://colorhunt.co/
