@@ -26,3 +26,8 @@ https://pixabay.com/
 https://www.enature.qa/
 
 https://www.newworldencyclopedia.org/
+
+https://allthings.how/
+
+https://simplenote.com/
+
