@@ -16,3 +16,7 @@
 🥑  Your life in free calculators:     https://www.omnicalculator.com/
 
 ROYALTY FREE MUSIC by BENSOUND:     https://www.bensound.com/
+
+https://darebee.com/
+
+https://www.gettyimages.com/
