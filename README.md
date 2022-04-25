@@ -53,4 +53,6 @@ https://www.symbolab.com/
 
 https://slidemodel.com/
 
+https://www.simplypsychology.org/
+
 Notability, GoodNotes
