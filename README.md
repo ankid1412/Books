@@ -51,4 +51,6 @@ https://www.autodraw.com/
 
 https://www.symbolab.com/
 
+https://slidemodel.com/
+
 Notability, GoodNotes
