@@ -63,4 +63,6 @@ https://www.busuu.com/vi
 
 https://www.beautifulchemistry.net/
 
+https://smart.servier.com/
+
 Notability, GoodNotes
