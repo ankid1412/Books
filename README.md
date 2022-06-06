@@ -65,4 +65,6 @@ https://www.beautifulchemistry.net/
 
 https://smart.servier.com/
 
+www.thetruesize.com
+
 Notability, GoodNotes
