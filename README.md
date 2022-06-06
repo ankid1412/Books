@@ -73,4 +73,6 @@ https://drumbit.app/
 
 https://www.ichemlabs.com/
 
+https://bookfere.com/en/dict
+
 Notability, GoodNotes
