@@ -67,4 +67,8 @@ https://smart.servier.com/
 
 www.thetruesize.com
 
+http://sampulator.com/
+
+https://drumbit.app/
+
 Notability, GoodNotes
