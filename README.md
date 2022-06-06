@@ -79,4 +79,6 @@ https://www.ichemlabs.com/
 
 https://bookfere.com/en/dict
 
+https://ourworldindata.org/
+
 Notability, GoodNotes
